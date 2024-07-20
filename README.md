@@ -8,6 +8,8 @@
 
 - 📫 How to reach me **rashidpbi111@gmail.com**
 
+- 🌐 Visit my personal portfolio [here](https://rashidpbi.netlify.app/)
+
 - 📄 Know about my experiences [https://drive.google.com/file/d/1zJm8rdEb1TSVu9UQLGcnjtFP8l60O57V/view?usp=drive_link](https://drive.google.com/file/d/1zJm8rdEb1TSVu9UQLGcnjtFP8l60O57V/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
