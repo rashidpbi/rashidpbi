@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **MERN**
 
-- 📫 How to reach me **rashidpbi111@gmail.com**
+- 📫 How to reach me **rashidpbi786@gmail.com**
 
 - 🌐 Visit my personal portfolio [here](https://rashidpbi.netlify.app/)
 
