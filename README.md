@@ -10,6 +10,8 @@
 
 - 📫 How to reach me **rashidpbi111@gmail.com**
 
+- 📄 Know about my experiences [https://drive.google.com/file/d/1yo6DS4JuIBFNv-lJ-Hj5EHCJr8y-CTmk/view?usp=drive_link](https://drive.google.com/file/d/1yo6DS4JuIBFNv-lJ-Hj5EHCJr8y-CTmk/view?usp=drive_link)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
